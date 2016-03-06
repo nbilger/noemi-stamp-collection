@@ -2,4 +2,4 @@ Noemi's Stamp Collection App
 
 #About Noemi
 
-Stuff about Noemi's Stamps here...
+New York Times Raves this is the best stamp collection of the ages!
